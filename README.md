@@ -2,6 +2,7 @@
 ini misalnya apa ya 
 
 Test repostiroy
+les go
 ini misalnya kalau mau nambahin 
 gimana pun juga maish apakah bis
 
